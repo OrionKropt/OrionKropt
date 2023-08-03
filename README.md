@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OrionKropt
 - 👀 I’m interested in  Software development, neurotechnology, and full immersion in virtual reality 
-- 🌱 I’m currently learning in in Russia
+- 🌱 I’m currently learning in Russia
 
 - 📫 How to reach me:
 e-mail SlavaCh2018@yandex.ru
